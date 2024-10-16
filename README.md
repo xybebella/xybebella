@@ -1,16 +1,15 @@
-## Hi there 👋
 
-<!--
-**xybebella/xybebella** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Sejam bem vindos ao meu perfil 💙💙
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-Sou Isabella Ferreira.
+-Estou desenvolvendo jogos no [Alura](https://cursos.alura.com.br).
+-Estou me desenvolvendo  na linguagem JavaScript.
+-Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos.
+-Sou uma torcedora fanatica do clube Athletico Paranaense 💍.
+-gosto do Stitch.
+-Meu melhor amigo se chama Renato.
+-Sou invejosa,e copiei do vini malvadeza👍🏿.
+-Gosto de ouvir musicas,jogar roblox e free fire.
+-Vou na acdemia por que minha mae me obriga, mas gosto de ir na igreja.
+-Sou muito gente boa.
