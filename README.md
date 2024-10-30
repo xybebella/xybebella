@@ -14,3 +14,5 @@ Sejam bem vindos ao meu perfil 💙💙
 -Vou na acdemia por que minha mae me obriga, mas gosto de ir na igreja.
 -Sou muito gente boa.
 ![](https://tenor.com/pt-BR/view/eyes-gif-21821822)
+👩🏻‍🎤
+-Sou apaixonada pela minha ex.
