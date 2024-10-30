@@ -2,6 +2,7 @@
 
 Sejam bem vindos ao meu perfil 💙💙
 
+EU ADORO PICA QUENTINHA GOSTOSA E ADORO BOQUETE PARAFUSOOOO
 -Sou Isabella Ferreira.
 -Estou desenvolvendo jogos no [Alura](https://cursos.alura.com.br).
 -Estou me desenvolvendo  na linguagem JavaScript.
